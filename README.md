@@ -235,7 +235,7 @@ that will lead us to achieve Catalan Republic.
 14:00
 
 :   During all this time we have been managing quite well. There is
-    still a large queu, but the cadency is good. About 200 hundred votes
+    still a large queue, but the cadency is good. About 200 hundred votes
     have already been casted –the census for this station is about 1100
     people–. Many people takes photos of each other casting their votes,
     they get emotional. It’s easy to spot tears in the eyes. A
