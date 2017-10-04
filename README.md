@@ -6,7 +6,7 @@ that I will never forget. The story is probably ver similar to that of
 thousands of people who served at the polling stations of the referendum
 that will lead us to achieve Catalan Republic.
 
-![image](entrada.jpg){width="65.00000%"}
+![image](entrada.jpg)
 
 20:00 (-1)
 
