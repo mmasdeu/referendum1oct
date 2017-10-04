@@ -11,8 +11,8 @@ that will lead us to achieve Catalan Republic.
 20:00 (-1)
 
 :   We speak with the volunteers that have gathered at “Aulos”, in order
-    to coordinate for the day after. Crucially, we decide who and how to
-    bring coffee! We head home to get ready for the night. There are two
+    to coordinate for the day after. Most crucially, we decide who will bring
+    coffe, and how! We head home to get ready for the night. There are two
     polling places which are closed and will be so through the night:
     “Aulos” and “Espai Infantil”. They need to be protected starting at
     5:00, but there is no need to be there before. We decide to spend
@@ -82,7 +82,7 @@ that will lead us to achieve Catalan Republic.
 4:30
 
 :   We finish preparing the coffee and put it in a thermos. We also take
-    cake and milsk. Soon we head out to “Espai Infantil”.
+    cake and milk. Soon we head out to “Espai Infantil”.
 
 4:45
 
