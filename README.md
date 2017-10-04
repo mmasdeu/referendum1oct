@@ -4,7 +4,7 @@ October 1, 2017. A cronicle of many victories
 In the following lines I try to give an account of how I lived 26 hours
 that I will never forget. The story is probably ver similar to that of
 thousands of people who served at the polling stations of the referendum
-that will lead us to achieve Catalan Republic.
+that will lead us to achieve the Catalan Republic.
 
 ![image](entrada.jpg)
 
