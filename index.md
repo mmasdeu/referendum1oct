@@ -1,3 +1,5 @@
+[Catalan version](ref1oct.md)
+
 October 1, 2017. A cronicle of many victories
 ==============================================
 
