@@ -1,3 +1,5 @@
+[English version](index.md)
+
 El primer d’Octubre de 2017. Una crònica de moltes victòries
 =============================================================
 
