@@ -1,9 +1,3 @@
----
-layout: post
-theme: jekyll-theme-slate
-title: El primer d’Octubre de 2017. Una crònica de moltes victòries
----
-
 El primer d’Octubre de 2017. Una crònica de moltes victòries
 =============================================================
 
